@@ -1,0 +1,1 @@
+é apenas uma galeria de animes que eu assisti
